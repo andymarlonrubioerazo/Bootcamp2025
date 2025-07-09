@@ -28,6 +28,8 @@ Usted puede inscribirse en 1, 2 o en los 3 cursos que ofrecemos.
 ## CUPOS LIMITADOS:
 Podemos alojar a 30 estudiantes por curso. L@s profesores universitarios tendrán preferencia en el proceso de selección.
 
+Andy presente
+
 ## PLAZO MÁXIMO DE POSTULACIÓN:
 2 de julio de 2025
 
